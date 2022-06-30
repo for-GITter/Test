@@ -7,7 +7,7 @@
 1. Vagabund
 1. [Corona](https://corona.de/)
 1. [Beck's](https://becks.de/)
-1. Berliner-Kindl
+1. Berliner-Weisse
 1. Brauhaus Lemke
 1. Pfefferbräu
 1. Heidenpeters
